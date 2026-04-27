@@ -7,8 +7,9 @@ The course is taught by [Dr. Anthea Alberto](https://rise.unibas.ch/de/team/anth
 
 **May 12th, 2026**
 
-<img width="885" height="373" alt="Bildschirmfoto 2026-04-27 um 15 59 04" src="https://github.com/user-attachments/assets/7299ab68-747a-4580-ad61-645d3c47a288" />
+<img width="885" height="373" alt="Bildschirmfoto 2026-04-27 um 15 59 04" src="https://github.com/user-attachments/assets/7299ab68-747a-4580-ad61-645d3c47a288" />  
 
+<br><br>
 
 **May 19th, 2026**
 
